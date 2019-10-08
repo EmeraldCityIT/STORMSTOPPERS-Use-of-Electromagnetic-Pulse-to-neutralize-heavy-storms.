@@ -1,2 +1,15 @@
 # STORMSTOPPERS-Use-of-Electromagnetic-Pulse-to-nutralize-heavy-storms.
 High pressure storms are caused by winds in the troposphere driven by electromagnetic fields. Atmospheric fields are able to induce hurricanes, electrical storms and winds which are able to drive lethal waves into coastal populations. In theory, the use of Electromagnetic weaponry during beginning or active stages of a storm would neutralize fields which are driving winds and creating hazardous conditions. The goal would be in recognizing conditions which cause dangerous storm activity and neutralize areas at the beginning stages of a storm. Testing should be done far away from population centers.
+
+Varying size and power strategies may be used to control specific conditions and neutralize opposing fields which create accelerated winds in the direction of the positive field. 
+
+Air debris can become charged during heavy winds and will be pulled through other substances by electromagnetic fields.
+
+Coulomb's right hand rule attributes directly to tornado formation, while also charging flying debris. Some experimentation should be done on grounding and neutralizing charge in vehicles. Reference electronic warfare proof devices.
+
+Tsunamis caused by winds and tidal wave formations may be reduced using this strategy. Property damages, lives lost, etc would be covered by experimentation.
+
+
+
+
+
