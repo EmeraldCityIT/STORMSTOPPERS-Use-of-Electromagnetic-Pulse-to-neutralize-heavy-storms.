@@ -9,6 +9,8 @@ Coulomb's right hand rule attributes directly to tornado formation, while also c
 
 Tsunamis caused by winds and tidal wave formations may be reduced using this strategy. Property damages, lives lost, etc would be covered by experimentation.
 
+The HAARP project has already aimed at controlling weather using this strategy. The arrays created by HAARP scare people and blast rays into the atmosphere instead of using targeted delivery strategies. Pinpoint "bombing" of storms is a safer and less scary solution to protecting the weather and. HAARP did not stop Michael, Sandy, Irene, Nargis or Harvey and we may be able to stop the next storm using devices already available to US military.
+
 
 
 
